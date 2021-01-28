@@ -1,2 +1,2 @@
 # Hinnawi Jewelers
-Store page for Hinnawi Jewellers in North Olmsted, OH
+Store page for Hinnawi Jewelers in North Olmsted, OH
